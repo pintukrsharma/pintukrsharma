@@ -1,3 +1,4 @@
+![logo](https://github.com/pintukrsharma/pintukrsharma/blob/main/cover.png)
 # 👷‍♂️ Pintu Kumar Sharma
 
 **Site Supervisor | Construction & Safety Professional | 2+ Years Experience | HPCL | L&T Construction**
